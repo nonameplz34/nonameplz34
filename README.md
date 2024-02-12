@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## Bem-vindo(a) ao perfil do danilo 😁
+## Bem-vindo(a) ao perfil do Danilo 😁
 
  <div>
    <a href="https://github.com/nonameplz34">
